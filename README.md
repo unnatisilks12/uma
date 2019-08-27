@@ -1,0 +1,2 @@
+# uma
+Anakaputhur – the suburb of Chennai  When somebody casually mentioned ‘It is better to be from a small town, rather than part of a big city’, it got me thinking as to how true the statement was.  Anything in a small town sooner or later gets noticed, taken cognizance of or better still, paid attention to. In being part of a city, there is so much more around, that anything gets swamped and passed over in the big picture, unless it is one of a few, is of interest to a vast majority or is in a position of prominence.
